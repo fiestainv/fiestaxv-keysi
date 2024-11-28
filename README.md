@@ -1,2 +1,2 @@
 # fiestaxv-keysi
-5 personas
+no especificado de personas
